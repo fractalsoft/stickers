@@ -1,0 +1,2 @@
+Stickers of Fractal Soft
+========================
